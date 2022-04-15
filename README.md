@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @UlfaSantika
 - 👀 I’m interesting in a few of KPOP, JPOP and CPOP, Anime, Donghua, and Asian Drama.
-- 🌱 I’m currently learning mandarin and english .
+- 🌱 I’m currently learning English.
 - 💞️ I’m looking to collaboration on High School Activity.
 - 📫 How to reach me ulfahsantika6@gmail.com
 
